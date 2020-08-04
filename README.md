@@ -1,0 +1,1 @@
+# Contribution-of-Cognitive-Science-and-Artificial-Intelligence-in-the-Simulation-of-the-Complex-Human
